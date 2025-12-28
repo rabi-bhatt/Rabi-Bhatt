@@ -41,9 +41,9 @@
 
 ## 📫 Contact Me
 
-- **Email:** your@email.com  
-- **Facebook:** https://facebook.com/yourprofile  
-- **LinkedIn:** https://linkedin.com/in/yourprofile  
+- **Email:** rabibhatt41@email.com  
+- **Facebook:** https://www.facebook.com/rabi.bhatt.2025
+- **LinkedIn:** https://www.linkedin.com/in/rabi-bhatt06/ 
 
 ---
 
